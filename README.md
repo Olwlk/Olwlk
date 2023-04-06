@@ -15,7 +15,7 @@
  
  <br>
  
-  ### Pra conteúdo sobre programação me segue a gente nas redes abaixo!
+  ### SEGUE AE SEU CORNO!
  
 <div> 
   <a href="https://instagram.com/Olwlk
